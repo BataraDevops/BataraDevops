@@ -16,3 +16,4 @@ Here are some ideas to get you started:
 -->
 
 - 📫 How to reach me: Instagram [**@Bataramth_**](https://www.instagram.com/bataramth_?igsh=NDZ1amI0dnloeGYz)
+- 📫 How to reach me: E-mail **josefhasiholan@gmail.com**
