@@ -1,4 +1,4 @@
-## Hello World! I'm Josef Batra 👋
+## Hello World! I'm Josef Batara 👋
 
 <!--
 **BataraDevops/BataraDevops** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
